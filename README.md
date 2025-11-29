@@ -1,4 +1,4 @@
-Computer Engineering Student getting through each ADHD ridden day... 50 thoughts and ideas at a time.
+<!--Computer Engineering Student getting through each ADHD ridden day... 50 thoughts and ideas at a time.-->
 <!-- 💞️ I’m looking to collaborate on ...-->
 <!-- 📫 How to reach me ...-->
 <!---
